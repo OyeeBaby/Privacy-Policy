@@ -119,6 +119,6 @@ You are advised to review this Privacy Policy periodically for any changes. Chan
 
     Contact Us
 
-If you have any questions about this Privacy Policy, please contact us by email: equipstat101@gmail.com
+If you have any questions about this Privacy Policy, please contact us by email: yuvrajgrocery.com
 
 This Privacy Policy was created for Y Grocery by PolicyMaker.io on 2020-10-22.
